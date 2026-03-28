@@ -11,7 +11,7 @@ Shelly,Vee,sprout, dazzle , brightney and squirm! .
 ![reading books](https://github.com/Astrothedreamkeeper/Astrothedreamkeeper/blob/9e3cac7a888ff6583ebacc1cfce50d5b035af434/IMG_1578.jpeg)
 
 💤 - i like comfy spots , i usually Use my Star pillow it pretty confortable wouldnt lie.! i do not really sleep at night i get into the toons dreams to check if they doing okay !. 
-![Sleeping Astro]()
+![Sleeping Astro](https://github.com/Astrothedreamkeeper/Astrothedreamkeeper/blob/cfb04e8a3916120ae1bdd3a6076c282d4fdfb47e/IMG_1584.jpeg)
 
 🍓🍰 - i wouldnt admit infront of him but - i prefer Cosmo baking pver Sprout one-.. it not because He bad or something it just i have preferance i guess?… but it wont make me like Sprout less then cosmo! 
 ![cosmo and sprout!](https://github.com/Astrothedreamkeeper/Astrothedreamkeeper/blob/56efd16808cedf46f0f87ad5d37f9f028ae023e1/IMG_1580.jpeg)
