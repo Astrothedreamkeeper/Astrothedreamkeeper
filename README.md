@@ -21,7 +21,7 @@ Shelly,Vee,sprout, dazzle , brightney and squirm! . 🐚🍓🌼📺🎭🐛💡
 ![Dandy and astro.](https://github.com/Astrothedreamkeeper/Astrothedreamkeeper/blob/cff8f0237f19a7144b31fca24842b04b556d3790/IMG_1585.jpeg)
 
 🧑🏻💙- sometimes i miss Austin i will admit. when the kid in garden view goes way to far- . even if in rules there was no photographis mentioned. but it didnt bother me this much. i knew i had Austin along my side it made me feel Happier.. ... i hope he will come back and read this of course. you awfully missed me.
-![Austin come back soon.](https://github.com/Astrothedreamkeeper/Astrothedreamkeeper/blob/5cca3a87217ba5283492ec068d1942e7b9e82563/IMG_1587.jpeg)
+![Austin come back soon.](https://github.com/Astrothedreamkeeper/Astrothedreamkeeper/blob/75f241b38d5d11828d7a970d02ac0edd8e93b876/IMG_1604.jpeg)
 
 🎵🌸🎀🌼- I had trouble helping My friend with there nightmares lately and the worst one was boxten, Glisten, Dandy and bassie. i hope they did okay.. and i hoped i could fix it im sorry if you got to a nightmare cuz i couldnt solve the problem..
 ![Bad dream.](https://github.com/Astrothedreamkeeper/Astrothedreamkeeper/blob/d18d545f8434b4d5b41c360e91e1f1368f575977/IMG_1583.jpeg)
