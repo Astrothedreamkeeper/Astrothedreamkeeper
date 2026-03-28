@@ -1,16 +1,29 @@
-## Hi there 👋
+## ''Sleep well''.
 
-<!--
-**Astrothedreamkeeper/Astrothedreamkeeper** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+🌙- Hello dear im Astro novalite one of the mains toons i do rater be called Astro simply. im a pretty Kind person. i think ? and i love conforting my friends when they need too! , im also called a Therapist friend . photophobia
+![Astro]()
 
-Here are some ideas to get you started:
+🌟 - i have a lot of friend and im very ungratefull for them! they are : Dandy, Shelly,Vee,sprout, dazzle , brightney and squirm! . 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+💡🎭📖 -im also part of the Book club which there is brightney and dazzle there too..! i love reading about astronomie and astronologie you could think it the same thing but a bit different!. 
+
+
+💤 - i like comfy spots , i usually Use my Star pillow it pretty confortable wouldnt lie.! i do not really sleep at night i get into the toons dreams to check if they doing okay !. 
+
+
+🍓🍰 - i wouldnt admit infront of him but - i prefer Cosmo baking pver Sprout one-.. it not because He bad or something it just i have preferance i guess?… but it wont make me like Sprout less then cosmo! 
+
+
+🌼🌈 - i missed how old days had been actually , when i first came i was a bit scared and nervous and it when i met dandy , my best friend , we mostly watched the star together under this tree under the gardenview! haha.. what a good memorie!.... i hoped we hang out more as we used to, but now im less Nervous , i guess it a start?… 
+
+
+🧑🏻💙- sometimes i miss Austin i will admit. when the kid in garden view goes way to far- . even if in rules there was no photographis mentioned. but it didnt bother me this much. i knew i had Austin along my side it made me feel Happier.. ... i hope he will come back and read this of course. you awfully missed me.
+
+
+🎵🌸🎀🌼- I had trouble helping My friend with there nightmares lately and the worst one was boxten, Glisten, Dandy and bassie. i hope they did okay.. and i hoped i could fix it im sorry if you got to a nightmare cuz i couldnt solve the problem..
+
+
+
+One day at daycare, I was walking down the halls looking for a comfortable place to rest, but suddenly I heard soft whispers and the sound of tears. So I headed towards the source of the noise until I saw Squirm. He was crying, but this time it seemed sadder than usual. It was as if Brightney had taken him away from the book group. I sat next to him and read him a short story. And when I turned around to see him, he had fallen asleep. "Goodnight, Squirm. I know it's not your fault and that you can't help it. Please don't cry..."
+
