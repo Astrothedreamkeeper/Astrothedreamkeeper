@@ -1,10 +1,10 @@
 ## ''Sleep well''.
 
-🌙- Hello dear im Astro novalite one of the mains toons i do rater be called Astro simply. im a pretty Kind person. i think ? and i love conforting my friends when they need too! , im also called a Therapist friend . photophobia, also if anyone had a problem with me and the. apologies well the story behind and everytjong forgotten.
+🌙- Hello dear im Astro novalite one of the mains toons i do rater be called Astro simply. im a pretty Kind person. i think ? and i love conforting my friends when they need too! , im also called a Therapist friend . photophobia, also if anyone had a problem with me and then apologies well this os all story behind us and  forgotten.
 ![Astro](https://github.com/Astrothedreamkeeper/Astrothedreamkeeper/blob/d98b41223264935ac4e8dddaaf356936781c2182/IMG_1581.jpeg)
 
 🌟 - i have a lot of friend and im very ungratefull for them! they are : Dandy, 
-Shelly,Vee,sprout, dazzle , brightney and squirm! . 
+Shelly,Vee,sprout, dazzle , brightney and squirm! . 🐚🍓🌼📺🎭🐛💡.
 
 
 💡🎭📖 -im also part of the Book club which there is brightney and dazzle there too..! i love reading about astronomie and astronologie you could think it the same thing but a bit different!. 
@@ -32,6 +32,5 @@ One day at daycare, I was walking down the halls looking for a comfortable place
 i enjoye the mains toons reunion actually we can pass time together even if it in obligation , I like them actually. right zfters reunion we often Go picnic,Or oderes sometimes while chit chatting .. of course i dont talk often i prefer lisning.! 
 ![Mains toons](https://github.com/Astrothedreamkeeper/Astrothedreamkeeper/blob/6ae4b6cfb6c863d1271835c7e45675df782e41bd/IMG_1582.jpeg)
 
-
-
+✨ ![That was all i hope you enjoyed reading this if you did of course you can follow me to support me or report if you dont like me i dont know actually anyway bye! sleep well littel star!🌟]
 
