@@ -36,3 +36,9 @@ i enjoye the mains toons reunion actually we can pass time together even if it i
 ![Mains toons](https://github.com/Astrothedreamkeeper/Astrothedreamkeeper/blob/6ae4b6cfb6c863d1271835c7e45675df782e41bd/IMG_1582.jpeg)
 
 💤 ![That was all i hope you enjoyed reading this if you did of course you can follow me to support me or report if you dont like me i dont know actually anyway bye! sleep well littel star.🌟]
+
+
+
+# # After Ichor operations...'
+
+![oh it me..]()
