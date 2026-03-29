@@ -41,4 +41,6 @@ i enjoye the mains toons reunion actually we can pass time together even if it i
 
 # # After Ichor operations...'
 
-![oh it me..]()
+![oh it me..](https://github.com/Astrothedreamkeeper/Astrothedreamkeeper/blob/ae1a6653bd72d5fbbf9d9bf52148451f653b55db/IMG_1706.jpeg)
+
+![why..]()
