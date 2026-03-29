@@ -37,17 +37,3 @@ i enjoye the mains toons reunion actually we can pass time together even if it i
 
 💤 ![That was all i hope you enjoyed reading this if you did of course you can follow me to support me or report if you dont like me i dont know actually anyway bye! sleep well littel star.🌟]
 
-
-
-# # After Ichor operations...'
-
-![oh it me..](https://github.com/Astrothedreamkeeper/Astrothedreamkeeper/blob/ae1a6653bd72d5fbbf9d9bf52148451f653b55db/IMG_1706.jpeg)
-
-![why..](https://github.com/Astrothedreamkeeper/Astrothedreamkeeper/blob/c84266632eedde28fa8cf14e6250bf38303bd985/IMG_1707.jpeg)
-
-i feel weird. Im constally tired. and everything i see is red.. my head hurts a lot.. every time i see a toon.. they talking to me. rudly .. everytime they does that. i want to hurt them so bad.. 
-i cry constally , my shames are revealed i rippied my blanket.. 
-
-your my friend.. but - why i want to hurt you so bad..?
-
-…[those meaning is that astro having nightmare constally. he hallucinate his friend being rude to him when they're not, they just looking at him terrified. which it bring him to be violent., about''my shame revealed it about his four arms. '' , Astro do not give dreams anymore. he give you nightmare about your own insecurity .]…
