@@ -1,11 +1,6 @@
 ## ''Astro diary.📖''.
 [you can not read if it too long ! btw you can also support me by follwing meh thanks you :3]
 
- do you know why you remember so few about your dreams ?…
- where do the memory go,slipping away in a matter of hours..
- he take them, he remember them, the good and the bad..
-This is his burden to bear..🌙
-
                ୨୧' * . .        '.   💤 [Astro pillow] 🌙  .'            .   .  *'୨୧
 
                            
