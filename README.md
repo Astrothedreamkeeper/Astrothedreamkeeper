@@ -1,7 +1,6 @@
 ## ''Astro diary.📖''.
-[you can not read if it too long ! btw you can also support me by follwing meh thanks you :3]
-💤                                                                                        💤
-            ✨.                                                                    .✨ 
+[you can not read if it too long ! btw you can also support me by follwing meh if you want!]
+        
                ୨୧' * . .        '.   💤 [Astro pillow] 🌙  .'            .   .  *'୨୧
 
                            
