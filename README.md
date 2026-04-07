@@ -20,6 +20,5 @@ Shelly,Vee,sprout, dazzle , brightney , boxten and squirm!(and much more!)
 
 i enjoye the mains toons reunion actually we can pass time together even if it in obligation , I like them actually. right afters reunions we often Go picnic,Or oderes sometimes while chit chatting .. of course i dont talk often i prefer lisning.! 
 💤 ![That was all i hope you enjoyed reading this if you did of course you can follow me to support me or report if you dont like me i dont know actually anyway bye! sleep well littel star.🌟]
-
+![mains toons]()
 knowing more about me ! : im a 100% French but i can talk English i guess? .i get unconfortable eazily if im tragect for forced ship or C+h me Even if i dont know you if so you can notice it when i hide behind my friends.(if uou did even care >3<) 🇫🇷
-![Astro dreamland](https://github.com/Astrothedreamkeeper/Astrothedreamkeeper/blob/b3e33eaffa393790bee140235b2f284a503080f4/ScreenRecording_04-06-2026%2022-39-30_1.mov)
