@@ -29,4 +29,7 @@ knowing more about me ! : im a 100% French but i can talk English i guess? .i ge
 
                            
                          '*.       °~  . .Dear diary. .     .~°         .*'
+![Astro sleeping](https://github.com/Astrothedreamkeeper/Astrothedreamkeeper/blob/63af40ba13f8bd9a3bee45ad6ce63500a86edb70/20260408-1_2026_04_08_21_29_32.mov)
+
 ![Astro bateners](https://github.com/Astrothedreamkeeper/Astrothedreamkeeper/blob/d5008581edbddbac961641aa2b8b0239672e6d06/20260408-1_2026_04_08_21_29_32.mov)
+
