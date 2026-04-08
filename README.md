@@ -24,8 +24,6 @@ i enjoye the mains toons reunion actually we can pass time together even if it i
 
 knowing more about me ! : im a 100% French but i can talk English i guess? .i get unconfortable eazily if im tragect for forced ship or C+h me Even if i dont know you if so you can notice it when i hide behind my friends.(if uou did even care >3<) 🇫🇷
 
--kssr :![🍰🌼🍓🎭🎶]
-
                ୨୧' * . .        '.   💤 [Astro pillow] 🌙  .'            .   .  *'୨୧
 
                            
