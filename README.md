@@ -31,4 +31,3 @@ knowing more about me ! : im a 100% French but i can talk English i guess? .i ge
 ![Astro sleeping](https://github.com/Astrothedreamkeeper/Astrothedreamkeeper/blob/08466595bcceafd228b4ca2202189039da55b8ec/20260408-3_2026_04_08_22_30_47.mov)
 ![Astro bateners](https://github.com/Astrothedreamkeeper/Astrothedreamkeeper/blob/d5008581edbddbac961641aa2b8b0239672e6d06/20260408-1_2026_04_08_21_29_32.mov)
 
-# 1 AstroCanonly 
