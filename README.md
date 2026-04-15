@@ -38,11 +38,17 @@ knowing more about me ! : im a 100% French but i can talk English i guess? .i ge
                                   ![ DO NOT INTERACT ]!
 
 ⛔️: - The dandy world maps supporter
+
 ⛔️: - Adult x Minor toon.
+
 ⛔️: - Animal x Adult/kid toon.
+
 ⛔️:- force shipper
+
 ⛔️:- Hazbin hotel/helluva boss.
+
 ⛔️:- inappropriate.
+
 ⛔️:- rude/toxic players 
-⛔️:- Moonshell and moonvision ( i dont like those ship sorry )
+
 ⛔️:- Braint rotted kid 
