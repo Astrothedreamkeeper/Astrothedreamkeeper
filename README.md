@@ -37,7 +37,7 @@ knowing more about me ! : im a 100% French but i can talk English i guess? .i ge
 
                                   ![ DO NOT INTERACT ]!
 
-🅾️: - The dandy world maps supporter
+⛔️: - The dandy world maps supporter
 ⛔️: - Adult x Minor toon.
 ⛔️: - Animal x Adult/kid toon.
 ⛔️:- force shipper
